@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kaaynat-azhar
-- 👀 I’m interested in thriler masala.
+- 👀 I’m interested in thriller masala.
 - 🌱 I’m currently learning Medicine.
 - 💞️ I’m looking to collaborate on .
 - 📫 How to reach me is to remember me.
